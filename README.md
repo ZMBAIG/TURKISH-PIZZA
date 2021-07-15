@@ -5,7 +5,7 @@ Small pinch salt
 Base;
 4 tbsp Pesto of choice – we used our Happy Pear Sun-Dried Tomato pesto
 4 tbsp Tomato puree
-Toppings;
+**Toppings**;
 Quick fire cashew feta;
 100 g cashew nuts
 3 tbsp lemon juice juice of 1 small lemon
